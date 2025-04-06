@@ -1,0 +1,1 @@
+# F.S-weekend-subtag-assignment
